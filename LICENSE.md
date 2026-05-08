@@ -1,4 +1,4 @@
-
+ClickUp for macOS ultimate Addon: auto-sync & voice notes is the best ClickUp for macOS addon, featuring auto-sync and voice notes. Safe, efficient, and optimized for macOS users.
 
 
 
